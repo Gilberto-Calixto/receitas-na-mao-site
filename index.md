@@ -31,4 +31,4 @@ Esta Política de Privacidade pode ser atualizada futuramente para refletir melh
 
 Em caso de dúvidas, entre em contato pelo e-mail:
 
-**seuemail@exemplo.com**
+**iongo.support@gmail.com**
